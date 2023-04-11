@@ -148,7 +148,7 @@ Kritische Auseinandersetzung mit folgenden Beispielen:
 * Live-Coding: [https://zkm.de/de/veranstaltung/2022/05/coding-culture](https://zkm.de/de/veranstaltung/2022/05/coding-culture)
 * Alexander Schubert: _Wiki-Piano.net_ (2018) für Klavier und Internet, [https://wiki-piano.net/](https://wiki-piano.net/)&#x20;
 * Lionel Yu, Concert at Kennedy Center March 2022, [https://www.youtube.com/watch?v=EtIwhvSa7kw](https://www.youtube.com/watch?v=EtIwhvSa7kw)&#x20;
-* Immersive Concerts: Lukas Haack (TU Dresden): MA Thesis, X-TALK: [https://www.youtube.com/watch?v=aK0nhsSDLPQ](https://www.youtube.com/watch?v=aK0nhsSDLPQ) (ab min. \~29:00)
+* Hatsune Miku: World is mine (2010), [https://www.youtube.com/watch?v=jhl5afLEKdo](https://www.youtube.com/watch?v=jhl5afLEKdo)
 
 </details>
 
